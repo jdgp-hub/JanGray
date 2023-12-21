@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @JanGray
 - 👀 I’m interested in learning to code
-- 🌱 I’m currently working on getting my gmail which was stolen by my now deceased son.
+- 🌱 I’m currently working on getting my gmail ddb545j@gmail.com which was stolen by my now deceased son.
 - 📫 How to reach me jdgp@duck.com
 - 😱I started using computers in 1986 when it was just dos. it was a great day when GUI's came along.
 <!---
